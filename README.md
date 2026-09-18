@@ -1,1 +1,1 @@
-Xinrui Jiang Personal Academic Website v6
+Xinrui Jiang Personal Website v7
